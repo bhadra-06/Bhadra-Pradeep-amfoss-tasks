@@ -1,4 +1,1 @@
-Hi , I am a student from s1 who loves to explore and learn new things. 
-On coming to deadline I can deal with it but a small push is needed for me to complete it. 
-I assure that I will be honest and dedicated to the work that is assigned to me and do my maximum to complete it .
-Thank you..
+Hello, I'm a curious and enthusiastic student from S1, passionate about exploring and learning new things. I'm a dedicated and honest individual who takes pride in my work and strive to deliver my best efforts. Although I'm still discovering my areas of interest, I'm excited to join FOSS and exploring various opportunities. I believe this experience will help me discover my strengths and interests, and I'm eager to contribute and learn from the club. Thank you..
